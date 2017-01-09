@@ -4,4 +4,4 @@ just another repository
 
 Gaby here!
 
-I like programming, i love gymnastic and Futbool and food. 
+I like programming, i love gymnastics, Futbool and  food. 
